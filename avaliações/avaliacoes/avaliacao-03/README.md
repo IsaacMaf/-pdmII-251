@@ -1,1 +1,1 @@
-# Avaliaá∆o 03 
+# Avalia√ß√£o 03 
