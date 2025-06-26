@@ -1,1 +1,1 @@
-# Avaliaá∆o 6 
+# Avalia√ß√£o 6 
