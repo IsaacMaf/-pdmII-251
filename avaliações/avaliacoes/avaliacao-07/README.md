@@ -1,1 +1,1 @@
-# Avaliaá∆o 7 
+# Avalia√ß√£o 7 
